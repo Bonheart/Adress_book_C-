@@ -1,1 +1,0 @@
-# Fakturki do wyplaty
